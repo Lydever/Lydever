@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 Ly or 李猫er~~
 
-🌱 学习 and 记录~
+- 🌱 学习 and 记录~
