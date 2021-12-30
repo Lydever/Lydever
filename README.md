@@ -14,6 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-李猫er~~
+Ly or 李猫er~~
 
 🌱 学习 and 记录~
