@@ -1,4 +1,4 @@
-### Hi Ly or 李猫er~ 👋
+### Hi I'm Ly~ 👋
 
 <!--
 **Lydever/Lydever** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -16,4 +16,4 @@ Here are some ideas to get you started:
 -->
 
 
-🌱 学习 and 记录~
+🌱 Learning and recording it~
